@@ -15,7 +15,7 @@
 * Adobe Illustrator
 
 💡 Además, tengo mi portfolio donde pueden ver mis diseños.
-[yorkisGuerrero.com](https://yorkisguerrero.com). 
+[UxYorkis.com](https://uxyorkis.com/). 
  
 👻 Soy un fan de las películas de Marvel, amo las series de TV y me gusta cocinar cosas que resultan ser comestibles.
 
